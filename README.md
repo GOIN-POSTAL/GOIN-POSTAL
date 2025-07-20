@@ -2,3 +2,9 @@
 
 <hr>
 
+<div align="center">
+  
+![](https://64.media.tumblr.com/8dd929363ed57df8626cdbbe3dccf861/c74de60fc71203bc-e4/s75x75_c1/fa5e66dfa96a969df80646a7f141181ade513a11.gifv) <img src="https://komarev.com/ghpvc/?username=vexuliii&color=e01d09&amp;label=Kill+count:" align="center" alt="view count" title="youre DEAD!"></a> ![](https://64.media.tumblr.com/8dd929363ed57df8626cdbbe3dccf861/c74de60fc71203bc-e4/s75x75_c1/fa5e66dfa96a969df80646a7f141181ade513a11.gifv)
+
+work in progress lawl
+

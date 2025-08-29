@@ -29,10 +29,9 @@
 </tr>
 </table>
 
-$\color{#fa0400}{\textsf{NON FREAK POSTAL FANS INT! PLEASE! I need more Postal friends..}}$
+$\color{#fa0400}{\textsf{NON FREAK POSTAL FANS INT! PLEASE!}}$
 
-$\color{#fa0400}{\textsf{I usually tend to sit around Docks/HermitHill/Marvel area,}}$
-
-$\color{#fa0400}{\textsf{feel free to C+H or int!}}$
+$\color{#fa0400}{\textsf{I usually tend to sit around}}$
+$\color{#fa0400}{\textsf{Docks/HermitHill/Marvel area, feel free to C+H or int!}}$
 
 

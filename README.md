@@ -32,7 +32,7 @@
 
 ![cigs](https://64.media.tumblr.com/b32ebdecd595d108fb7096b950fe774f/5203c8a05f74308e-9e/s75x75_c1/6f31d0d78464aa39a4fc52f71846d079f97edd3f.gifv)
 
-$\color{#fa0400}{\textsf{NON FREAK POSTAL FANS INT! PLEASE!}}$
+$\color{#fa0400}{\textsf{NON-FREAK POSTAL FANS INT! PLEASE!}}$
 
 $\color{#b81b17}{\textsf{I usually tend to sit around}}$
 $\color{#b81b17}{\textsf{Docks/HermitHill/Marvel area, feel free to C+H or int!}}$

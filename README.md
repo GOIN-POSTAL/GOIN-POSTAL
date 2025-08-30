@@ -23,13 +23,14 @@
 
 <img src="https://64.media.tumblr.com/2b6e9d784103a0b7972fce121dc07891/fb1abe58ff02b2c1-be/s1280x1920/f156a3894f619afbdcb1dbbb7178ea6c9c7e8cb7.webp" alt="p1 gif" width="25%" title="Art by napalm985"></a>
 
-![cigs](https://64.media.tumblr.com/b32ebdecd595d108fb7096b950fe774f/5203c8a05f74308e-9e/s75x75_c1/6f31d0d78464aa39a4fc52f71846d079f97edd3f.gifv)
 <table>
 <tr>
   <td>$${\color{#fa0400}\verb|Hello! I'm GRAVE.|}$$</td>
     <td>$${\color{#fa0400}\verb|He/Him + Any prns|}$$</td>
 </tr>
 </table>
+
+![cigs](https://64.media.tumblr.com/b32ebdecd595d108fb7096b950fe774f/5203c8a05f74308e-9e/s75x75_c1/6f31d0d78464aa39a4fc52f71846d079f97edd3f.gifv)
 
 $\color{#fa0400}{\textsf{NON FREAK POSTAL FANS INT! PLEASE!}}$
 

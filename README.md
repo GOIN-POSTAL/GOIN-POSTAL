@@ -25,8 +25,8 @@
 
 <table>
 <tr>
-  <td>$${\color{#fa0400}\verb|Hello! I'm GRAVE.|}$$</td>
-    <td>$${\color{#fa0400}\verb|He/Him + Any prns|}$$</td>
+  <td>$${\color{#827972}\verb|Hello! I'm GRAVE.|}$$</td>
+    <td>$${\color{#827972}\verb|He/Him + Any prns|}$$</td>
 </tr>
 </table>
 

@@ -17,7 +17,7 @@
 <img src="https://64.media.tumblr.com/f1d2ddf8c02a573531daa29cbb134720/448de2f235b8fcbe-70/s500x750/b40b73a25b67d08b5cec03cc0af7de6e586a5c75.pnj" align="left" alt="Pdude" title="Art by SKELTRR"></a>
 
   <a href="https://vexulii.atabook.org/"><img src="https://64.media.tumblr.com/6d397cf45032816ee95eebc272c28a38/7e12cc3c384d74d1-6f/s250x400/7a7b67e51547f74a0889b017e4e55bfe5aad4d36.pnj" alt="Atabook" height=60px title="Atabook/Guestbook">
-    <a href="https://vexgrave.ju.mp/"><img src="https://64.media.tumblr.com/dcfefc2fe0ebcacb3117567d9635115a/7e12cc3c384d74d1-90/s250x400/9c086d3c52f50f0d80ebbd84d45bd778cc8af7c2.pnj" alt="Carrd" height=60px title="Carrd">
+    <a href="https://vexgrave.ju.mp/"><img src="https://graverobbed.ju.mp/" alt="Carrd" height=60px title="Carrd">
       <a href="https://gravesited.straw.page/"><img src="https://64.media.tumblr.com/6ecaae1464f6b0e06c37a3724a2ecec4/6138bd87ce054daa-96/s250x400/93768974e3ac4aea092228138b38d4a01e02562e.pnj" alt="strawp" height=60px title="Strawpage">
 
 

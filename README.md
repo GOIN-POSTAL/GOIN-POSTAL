@@ -115,3 +115,44 @@ I also have the I regret nothing shirt and alien shirt... but i also use them wh
 </details>
   
 </details>
+
+<details>
+<summary>Also all postal stamps i've made</summary>
+
+Free to use!
+  
+  ![p1 plush spin](https://64.media.tumblr.com/407f4a8ff8eca1d8387e59c1eff4c57e/804fdd89e55b13b8-7d/s100x200/af0709c9ae63fbd5e801401a30d56a43dcc9b203.gifv)
+![p2 plush spin](https://64.media.tumblr.com/62af0860e065006cd1f7f9d18cd77aee/804fdd89e55b13b8-e3/s100x200/ad086112b10d0a28d68e4684de53c99b8ba85dc0.gifv)
+![p3 plush spin](https://64.media.tumblr.com/2e542752f5c0245565b7e992bcd807d6/804fdd89e55b13b8-50/s100x200/1d64bb49e47f10db7cc53064ac932fc90f8de279.gifv)
+![p4 plush spin](https://64.media.tumblr.com/8146a92d7b0f28622f23837fc9796137/b4ced78b179148dc-d8/s100x200/ccc60795d976167f9faa2cac32f593fcea299c78.gifv)
+![dude beloved}](https://64.media.tumblr.com/e8cf7587a6c365e3042404d3907a9991/33b686b16177d887-5a/s100x200/c08dda42abc1b95663e3945d1140a34b84b8f707.gifv)
+![p3 dance](https://64.media.tumblr.com/9205bd0c4d06c7cb60b61b9365e2dec5/33b686b16177d887-68/s100x200/8b49d86c604969b58419f291be5f8f802d526c56.gifv)
+![p2 dance](https://64.media.tumblr.com/34fd24ed2aff6cc40ea46f1c336edb40/33b686b16177d887-b3/s100x200/70fdd73a1a50e857bcb8fc997cf1af4409bf06a4.gifv)
+![p1 no](https://64.media.tumblr.com/4d142a13d41cb442bbc952eb5894ce3c/33b686b16177d887-e2/s100x200/3361a3fe17588665589df4cda901803c16125c7e.gifv)
+![p2 gasoline](https://64.media.tumblr.com/a98f409eb5789853544a4d21c8c9f910/33b686b16177d887-04/s100x200/0cdaa895137e9507084c55cd061250c4b4a9cfcd.gifv)
+![p2 petition](https://64.media.tumblr.com/c6ac2659ff305e5e01b52b67d3eaad67/33b686b16177d887-80/s100x200/cd1c9f779777a35a367d289db747e9797f4cd70d.gifv)
+![pbd rage](https://64.media.tumblr.com/c82124360234151353cd5dbe056ece56/33b686b16177d887-8f/s100x200/361665b4d56339225f7da7799e8c465c18d1f7e8.gifv)
+![p2 spongebob cry](https://64.media.tumblr.com/e1a00fa5b5ece82c4c011425ce29f1d5/33b686b16177d887-5c/s100x200/674612317175a099d9e26c3dce0ea4dc72ab0ca7.gifv)
+![p1 spin](https://64.media.tumblr.com/ee16949cd7da76be68c0d513d491b4e4/95e5ef3929c92c5e-6b/s100x200/a9f371ef953f6dba510359f17bba4e8fa54df5a9.gifv)
+![p1 heal](https://64.media.tumblr.com/655567887bcb75bb49d464fced219db1/95e5ef3929c92c5e-12/s100x200/9f409b2c27ab7a706107a66467b74be04a1eff1d.gifv)
+![p1 regret nothing](https://64.media.tumblr.com/4656dcdcf6196e7a53ab22d49d9caa7f/95e5ef3929c92c5e-98/s100x200/3eb606576f94bbbdf58628b02a6a54a592f88cd1.gifv)
+![p1 execution](https://64.media.tumblr.com/a4ff28bbe667a9d740d117e84de0161e/95e5ef3929c92c5e-77/s100x200/48c91e12bfe42b8d9d3c5c2e16147a93868143de.gifv)
+![p1 flamethrower](https://64.media.tumblr.com/3b6c8a5f909230201a798bf79b9062f3/95e5ef3929c92c5e-4a/s100x200/cb2899a54d3ed7a5dac0ec8b72c228ddd31e3837.gifv)
+![p1 dude](https://64.media.tumblr.com/def1c97b4fbdc961f95006b68446119f/95e5ef3929c92c5e-7d/s100x200/423f4171ffe5bb692b053e2c99f54e5f0949e7e9.gifv)
+![pbd fight 1](https://64.media.tumblr.com/fe55be68876e0908675d298ab53e0979/b4ced78b179148dc-ae/s100x200/0e8f5798f0138ef6445d13b85449646214748aba.gifv)
+![pbd fight 2](https://64.media.tumblr.com/fc6683cab0975194c6e6c3c1889184d0/b4ced78b179148dc-30/s100x200/68cd44571f4149171711a0a3d104fcced77e474c.gifv)
+![the earth is hungry](https://64.media.tumblr.com/1b6b7bd37ecf07ccf0f32cc5239e8322/58caeea50a22e7b5-8b/s100x200/a45c051504ac141b1f141acc0233a6c812621e29.gifv)
+![p4 title](https://64.media.tumblr.com/107097e863ab09b82816ef262ce7f8b0/58caeea50a22e7b5-67/s100x200/f583ed2113d0eff6ee6b47d13573590264ea2ce3.gifv)
+![p4 talking](https://64.media.tumblr.com/265a3efc7ebba3b133edb8e61d7fa4b3/58caeea50a22e7b5-74/s100x200/e5e528239d5cf80508c2b1d39cdf407ee4015dcd.gifv)
+![p4 chomp](https://64.media.tumblr.com/f3f65a111251f1bf3c425186a1b9cf91/58caeea50a22e7b5-70/s100x200/2746aa3194ee3c35f6aca033d4ac44185f7c5d0e.gifv)
+![p4 run over](https://64.media.tumblr.com/fd241d97ca45c69903030b56c04fa27e/58caeea50a22e7b5-2a/s100x200/36a55807193c4762ff233edbfc862f7f867e379d.gifv)
+![p4 whack](https://64.media.tumblr.com/8fcc3d51e76f64d6ba29f8e1be2f91c2/58caeea50a22e7b5-1b/s100x200/4226aa17a83444eef9e32483caebdecb5eb49f2e.gifv)
+![p4 donut](https://64.media.tumblr.com/dda1937b21694497a0fdee04a3f89b56/58caeea50a22e7b5-f5/s100x200/76dbeef8112bc8093a8167a07bd6b737cb6285d0.gifv)
+![p4 cat](https://64.media.tumblr.com/be5c549183b3cd5abeb38f80450a9ac6/58caeea50a22e7b5-ff/s100x200/4641c1f81e137a24e67a0959e34769955f9ff2ed.gifv)
+![p3 jumpscare](https://64.media.tumblr.com/9f271610ee7a97661dd3fa53a2297515/58caeea50a22e7b5-47/s100x200/5e16054d8687bdc30d05ddf9c0aa12006e9dcd9b.gifv)
+![p3 wave](https://64.media.tumblr.com/7811ffc579e5959c81f0b2337532387b/58caeea50a22e7b5-e9/s100x200/fed6d954ca269f13f5f51d663479bb5d7d92cae8.gifv)
+![p3 n champ](https://64.media.tumblr.com/896c329baadc21da0000a2045edefbac/58caeea50a22e7b5-98/s100x200/56a422bcb19aa270e399509ebdf77ef8319564f5.gifv)
+![p3 think](https://64.media.tumblr.com/33d8606de7a78ec2b8fdfb2eb4a53168/58caeea50a22e7b5-ba/s100x200/b545027bc583a9bf9048808451f14c43817f2f38.gifv)
+![p3 title](https://64.media.tumblr.com/33b531ee8271b9fbe24ff8be9c44d20b/58caeea50a22e7b5-b2/s100x200/4116554f5bc3874d207639e04ccc85d63535e88a.gifv)
+
+</details>
